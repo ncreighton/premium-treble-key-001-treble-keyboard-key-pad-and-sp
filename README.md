@@ -1,0 +1,2 @@
+# premium-treble-key-001-treble-keyboard-key-pad-and-sp
+Stop losing track of which treble keys you've repaired—this Notion log turns scattered notes into a searchable, professional replacement history.  This template organizes every key pad and spring swap in one place, so you never double-replace or miss a critical fix. Unlike paper logs or random notes, it gives you instant visibility into your treble
